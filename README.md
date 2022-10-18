@@ -30,3 +30,4 @@ https://unbloocked-games-1.glitch.me/
 https://www.quizlet.gq/
 https://scratch.mit.edu/search/projects?q=unblockers
 https://sterlod.ml/
+https://proxy.catjam.org/
