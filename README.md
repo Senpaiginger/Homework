@@ -31,3 +31,4 @@ https://www.quizlet.gq/
 https://scratch.mit.edu/search/projects?q=unblockers
 https://sterlod.ml/
 https://proxy.catjam.org/
+https://simplemathhelper.tk/
